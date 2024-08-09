@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pavan3737
+- 👋 Hi, I’m @pavan
 - 👀 I’m interested in new things
 - 🌱 I’m currently wang to learn
 - 💞️ I’m looking to collaborate with oppurtunity
